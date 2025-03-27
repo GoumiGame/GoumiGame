@@ -1,7 +1,6 @@
-Salut 󠀯󠁦󠁸󠀳 󠁛󠀣󠀲󠀷󠀰󠀰󠀰󠀲󠀬󠀣󠀰󠀰󠀲󠀰󠁦󠁦󠁝
- 󠁛󠀣󠀲󠀷󠀰󠀰󠀰󠀲󠀬󠀣󠀰󠀰󠀲󠀰󠁦󠁦󠁝
+Average Slap Battles Enjoyer
 
+Youtube : @goumi_le_vrai
 
- 
-Moi c'est Goumi, le fondateur du GoumiGang et le youtubeur Goumi Game.
-https://bento.me/goumi-game
+Mon jeu roblox :
+https://www.roblox.com/games/101428244000102/ALPHA-Goumis-Chill-Place
